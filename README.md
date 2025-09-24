@@ -9,13 +9,13 @@
   ㅤ
 </p>  
 <p align="center">
-vince 18 queer
-18+ ONLY !!!!
-c+h & boop ok !!
+<p> vince 18 queer </p>
+<p> 18+ ONLY !!!! </p>
+<p> c+h & boop ok !! </p>
   
-no dni besides 
-queerphobes & lv 1 queers, 
-shipcoursers, syscoursers, 
+<p> no dni besides </p>
+<p>queerphobes & lv 1 queers, </p>
+<p>shipcoursers, syscoursers, </p>
 
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[rentry](https://rentry.co/)ㅤㅤㅤㅤㅤ[sign my guestbook](https://users3.smartgb.com/g/g.php?a=s&i=g36-39520-d3)
