@@ -9,7 +9,7 @@
   ㅤ
 </p>  
 <p align="center">
-<p> vince 18 queer 18+ ONLY !!!! </p>
+<p> vince 18 lesbian 18+ ONLY !!!! </p>
 <p> c+h & boop ok !! </p>
   
 <p> no dni besides </p>
